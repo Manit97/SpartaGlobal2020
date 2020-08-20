@@ -1,0 +1,1 @@
+# SpartaGlobal2020
